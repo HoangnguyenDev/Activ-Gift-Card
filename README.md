@@ -7,7 +7,8 @@
 In an age of endless choices and seamless online shopping experiences, gift cards have become the quintessential symbol of versatility and thoughtfulness. What better way to gift that freedom of choice than with an Activ Gift Card? [Activ gift card](https://activgiftcard.net/) introduces a convenient and secure way to empower your friends, family, or even yourself with a passport to limitless shopping possibilities.
 
   
- 
+ ![image](https://github.com/HoangnguyenDev/Activ-Gift-Card/assets/10234503/60a5740d-c66b-4191-8694-078531862fd0)
+
 
 **A Glimpse into Activ Gift Cards**
 -----------------------------------
@@ -33,7 +34,8 @@ One of the tenets of [activ prepaid visa](https://activgiftcard.net/) is the eas
 You can conveniently find Activ Gift Cards at myriad retail locations, including your nearest supermarkets, department stores, and even convenience stores. They are elegantly displayed, often nestled near the checkout counters, ready for you to grab and go.
 
   
- 
+ ![image](https://github.com/HoangnguyenDev/Activ-Gift-Card/assets/10234503/0177e85b-9185-4ad1-81c6-ca0ebd352b5b)
+
 
 Alternatively, for added convenience, Activ's official website and authorized online retailers allow you to purchase these magnificent gift cards from the comfort of your own home. This option not only provides instant access to the gift cards but also lets you choose from a variety of designs and denominations, tailoring your gift to your liking.
 
